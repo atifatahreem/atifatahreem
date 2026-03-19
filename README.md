@@ -8,6 +8,6 @@
 - I love dogs 🐶  
 
 ## Contact
-📧 Email: tahreematifa@gmail.com  
+Email: tahreematifa@gmail.com  
 
 DON’T LOOK AT THE REPOS THEY’RE ALL USELESS 😭
