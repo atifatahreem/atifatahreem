@@ -1,7 +1,5 @@
 # Hi I am Atifa 
 
-
-- I enjoy coding 💻  
 - I like sketching 🎨  
 - I play badminton 🏸  
 - I listen to Stray Kids 🎶  
